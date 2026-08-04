@@ -1,6 +1,6 @@
 # 她欲最新地址发布（牢记地址发布页 永不迷路）
 
-- 最新地址（无需 VPN）：https://tayu8.com
+- 最新地址（无需 VPN）：https://tayu10.com
 - 永久地址（需要 VPN）：https://tayu1.com
 - 官方推特 1：https://x.com/tayu_her
 - 官方推特 2：https://x.com/tayu_her2026
