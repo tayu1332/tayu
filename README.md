@@ -22,3 +22,7 @@
 ###### 苹果（需要非国区ID）：https://apps.apple.com/us/app/telegram-messenger/id686449807 
 
 #### 请把网址分享给身边有需要的人 ，您的转发、分享是我们前进的动力
+## 更多好站
+
+- [蓝颜之瘾｜女性向男优与男博主](https://lanyanzy.com/)
+- [尤物岛｜网黄博主与 COS 写真](https://youwudao.com/)
